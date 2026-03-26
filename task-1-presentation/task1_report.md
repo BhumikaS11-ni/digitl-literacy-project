@@ -1,0 +1,5 @@
+Digital Literacy Infographic – Task 1 Report
+For this task, I created a digital literacy infographic using Canva. Canva is a free and easy-to-use online design tool that helps users create infographics, posters, and presentations using ready-made templates.
+In my design, I explained the concept of digital literacy and why it is important for students. The infographic includes topics such as what digital literacy means, useful digital tools for students, safe internet practices, and maintaining a professional online presence. I used icons, colors, and short points to make the information clear and easy to understand.
+While creating the infographic, I tried to organize the information in a visually appealing way so that students can quickly understand the key ideas. One interesting thing I found during this task was how visual designs can make complex information easier to understand compared to plain text.
+This activity helped me learn how to present information creatively using digital tools.
